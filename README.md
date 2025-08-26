@@ -1,4 +1,4 @@
-## BullBah-is - Bullbah-is Giriş - Bullbah-is Güncel
+## BullBahis - Bullbah-is Giriş - Bullbah-is Güncel
 
 <!--
 **bullgiris/bullgiris** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
